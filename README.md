@@ -19,5 +19,4 @@ That's It
 
 
 If You Like My Projects Share It With Your Friends
-                                                                                                           
-                                                                                                           MAde With ♥ By Gnaneshwar Reddy. Dyapa
+                                             MAde With ♥ By Gnaneshwar Reddy. Dyapa
